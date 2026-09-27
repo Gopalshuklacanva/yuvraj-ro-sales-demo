@@ -25,7 +25,7 @@ not replace that site or modify the Google Business Profile.
 
 The three brief verbatim excerpts in the page are attributed to Saurabh Adiwal,
 Srijan Chaubey and Rishi Singh, each with a five-star review visible on the
-listing. Excerpts total 21 words. The first two reviewers have Local Guide
+listing. Excerpts total 19 words. The first two reviewers have Local Guide
 badges. Rishi Singh is labeled only as a Google reviewer. No fabricated
 testimonials, response-time promises or authorized-dealer claims were added.
 
